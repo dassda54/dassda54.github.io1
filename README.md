@@ -12,3 +12,6 @@
 🔞https://dassda54.github.io 🔥
 🔞未成年无法参加🔞
 
+## 或者将这个二维码发给他/她
+
+![示例图片](https://github.com/dassda54/dassda54.github.io/blob/main/my_qrcode.png?raw=true)
